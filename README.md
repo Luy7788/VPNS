@@ -24,9 +24,9 @@
 ![](assets/17789177347969.jpg)
 
 
-# [网际快车 - 6.8元20G不限时长不限设备](https://xxyun.at/?code=8hidOXBh)
+# [网际快车 - 6.8元20G不限时长不限设备](https://快车.com?c=GQRWCO )
 
-### [注册链接🔗](https://xxyun.at/?code=8hidOXBh)
+### [注册链接🔗](https://快车.com?c=GQRWCO )
 
 9折优惠码：xxyun
 85折优惠码（只能使用一次）：xxyun85
