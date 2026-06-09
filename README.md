@@ -4,7 +4,8 @@
 # [xxyun - 66元 500G 不限时长&不限设备](https://xxyun.at/?code=8hidOXBh)
 
 9折优惠码：xxyun
-85折优惠码（只能使用一次）：xxyun85
+
+85折优惠码（85好像不能用了）：xxyun85
 
 ### [注册链接🔗](https://xxyun.at/?code=8hidOXBh)
 ![](assets/17789186989369.jpg)
